@@ -1,6 +1,6 @@
 ## 🔹 Junior Cybersecurity Analyst
 
-# 👨‍💻(male) or 👩‍💻(female) [Your Name]  
+# [Samantha Victor]  
 **Junior Cybersecurity Analyst | Future Security Professional**  
 
 📌 **About Me:**  
